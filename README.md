@@ -1,1 +1,1 @@
-# VanuatuInclusiveEducationConsultant.com
+# JanetInclusiveEducationConsultant.com
